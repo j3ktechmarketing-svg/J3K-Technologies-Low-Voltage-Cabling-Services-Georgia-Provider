@@ -64,4 +64,4 @@ As a **Low Voltage Cabling Services Georgia Provider**, **Network Wiring Company
 
 Our solutions are built to keep your business connected, secure, and future-ready.  
 
-**J3K Technologies – Your local experts in network wiring, low voltage cabling, and structured infrastructure installations across Georgia.**
+**J3K Technologies-Your local experts in network wiring, low voltage cabling, and structured infrastructure installations across Georgia.**
