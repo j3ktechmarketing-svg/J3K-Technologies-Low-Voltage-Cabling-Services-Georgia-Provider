@@ -40,7 +40,7 @@ From small office networks to enterprise-grade infrastructure, our local technic
 
 J3K Technologies takes pride in being recognized as one of the **Structured Cabling Installation Experts Near Me Georgia Contractors**. We specialize in structured cabling systems that serve as the backbone of your IT and communication network.  
 
-Our installations are planned, organized, and fully documented to support scalability, upgrades, and future expansion. We work with Cat5e, Cat6, Cat6a, and fiber optic cabling—ensuring data transmission remains fast, reliable, and interference-free.  
+Our installations are planned, organized, and fully documented to support scalability, upgrades, and future expansion. We work with Cat5e, Cat6, Cat6a, and fiber optic cabling-ensuring data transmission remains fast, reliable, and interference-free.  
 
 Our structured cabling experts design every system around your facility layout, device requirements, and long-term technology goals. Whether you’re opening a new site or modernizing an existing network, we build solutions that grow with your business.  
 
